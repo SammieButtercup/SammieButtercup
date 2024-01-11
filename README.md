@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...STEM
 - 🌱 I’m currently learning ...Programming
 - 💞️ I’m looking to collaborate on ...FTC
-- 📫 How to reach me ...samanthalorelei@outlook.com or samanthalorelei39@gmail.com
+- 📫 How to reach me ... samanthalorelei@outlook.com or samanthalorelei39@gmail.com
 - 😄 Pronouns: ...She/Her
 - ⚡ Fun fact: ...My FTC team is the Transisters team 6934
 
